@@ -1,3 +1,2 @@
 Sharyn Miyaji
-6
 
